@@ -1,2 +1,8 @@
 # Yo-Kai-Watch-3-Germany-Cheats
-Cheats for the Germany version of Yo Kai Watch 3
+Please read before using the cheats
+
+Scroll down to reas the German text
+
+## English
+
+## German
